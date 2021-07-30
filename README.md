@@ -1,2 +1,4 @@
 # hello-world
-git for git
+kaki the geek.
+Fast typist
+The gaffer
